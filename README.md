@@ -20,3 +20,4 @@ here and roblox area ( under bakery ) mayb
 ive figured you've been sick of me for a while now . was it not clear to you what i already felt and thought about you previously. 
 
 what's your fucking deal with me now
+Do I have to explain to you everything.
