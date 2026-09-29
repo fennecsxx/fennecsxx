@@ -5,3 +5,7 @@
 nearly always w2i if I'm not clearly active or no resp
 
 18+ iwc
+
+dni if you have a problem with freaky people 
+
+more at straw.
