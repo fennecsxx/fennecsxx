@@ -10,6 +10,6 @@ dni if you have a problem with freaky people
 
 more at straw.
 
-i usually hangout at phighting area , 
+i usually hangout at phighting area ( which is to the left of sonic area ) , 
 <img width="248" height="193" alt="Screenshot 2026-09-29 6 39 35 PM" src="https://github.com/user-attachments/assets/86fbd017-7f2e-474b-acf5-196edd5e9a1e" />
-here and forsaken area mayb
+here and roblox area ( under bakery ) mayb
