@@ -4,7 +4,7 @@
 
 nearly always w2i / dntuf if I'm not clearly active or no resp
 
-18+ iwc
+18+ , 11- iwc
 
 dni if you have a problem with freaky people 
 
